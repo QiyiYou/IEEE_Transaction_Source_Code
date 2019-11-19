@@ -13,7 +13,7 @@ Dr. Vinit Jakhetiya
 Email:vinit.jakhetiya@iitjammu.ac.in
 
 Trisha Singhal
-Email: trishasinghal.hcst.cs15@sgei.org
+Email: singhaltrisha25@gmail.com
 
 ---------------------------------------------------------------------------
 
